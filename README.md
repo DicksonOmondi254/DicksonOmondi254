@@ -5,7 +5,7 @@
 - 📫 How to reach me
 - Email; dickomondi43@gmail.com
   Phone no. 0718448865 
-- 😄 Pronouns: Supremercy to the integriest level. 
+- 😄 Pronouns: HE/HIS
 - ⚡ Fun fact: cows don't have money coz we milk them dry.
 
 <!---
